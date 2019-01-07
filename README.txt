@@ -1,3 +1,5 @@
+Edits 
+https://docs.google.com/document/d/1Tg-YncrKVmNz5Cs38BznOkIMXTsa_GAPKooKLC3NIGY/edit?usp=sharing
 
 TITLE: 
 Elate - One Page Responsive Free HTML5 template
